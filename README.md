@@ -25,7 +25,7 @@ $${\color{#112b61} ˖᯽ ݁˖ \space Blue \space ! \space ᯓ★}$$
 
 $${\color{#264585FF} ⊱ ۫ ׅ ✧ \space He \space / \space Him \space :: \space She \space / \space Her \space ⊹ ࣪ ˖ }$$
 
-$${\color{#3d60a8} ๋ ࣭ ⭑ \space I \space txt \space LOVE \space MY \space WIFE \space ༉‧₊˚. }$$
+$${\color{#3d60a8} ๋ ࣭ ⭑ \space I \space LOVE \space MY \space WIFE \space ༉‧₊˚. }$$
 
 
 <img width="1271" height="81" alt="tumblr_345bb2d806df5a8b068391e36a7af9ec_0a8cea2a_1280" src="https://github.com/user-attachments/assets/7e9e8a97-c381-4623-bc07-fc0d793cfc7f" />
