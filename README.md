@@ -21,7 +21,7 @@ $${\color{#6986c2} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. }$$
 
 
 
-$${\color{#112b61} ˖᯽ ݁˖ \space name \space ! \space ᯓ★}$$
+$${\color{#112b61} ˖᯽ ݁˖ \space Blue \space ! \space ᯓ★}$$
 
 $${\color{#264585FF} ⊱ ۫ ׅ ✧ \space He \space / \space Him \space :: \space She \space / \space Her \space ⊹ ࣪ ˖ }$$
 
