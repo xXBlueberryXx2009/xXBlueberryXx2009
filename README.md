@@ -23,7 +23,7 @@ $${\color{#6986c2} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. }$$
 
 $${\color{#112b61} ˖᯽ ݁˖ \space name \space ! \space ᯓ★}$$
 
-$${\color{#264585FF} ⊱ ۫ ׅ ✧ \space prn \space / \space prn \space :: \space prn \space / \space prn \space ⊹ ࣪ ˖ }$$
+$${\color{#264585FF} ⊱ ۫ ׅ ✧ \space He \space / \space Him \space :: \space She \space / \space Her \space ⊹ ࣪ ˖ }$$
 
 $${\color{#3d60a8} ๋ ࣭ ⭑ \space txt \space txt \space txt \space txt \space txt \space txt \space txt \space ༉‧₊˚. }$$
 
