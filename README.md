@@ -37,13 +37,13 @@ $${\color{#3d60a8} ๋ ࣭ ⭑ \space I \space LOVE \space MY \space WIFE \space
 <summary>$${\color{#3d60a8} 𓏲 ๋࣭ ࣪ ˖ \space about \space me \space ! \space ؛ ଓ}$$</summary>
   
 ![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
-₊˚ ┊ bullet 1
+₊˚ ┊ I am a lesbian, Omnisexual, Demiboy !
 
 ![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
-₊˚ ┊ bullet 2
+₊˚ ┊ I am 16 -17 in August-
 
 ![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
-₊˚ ┊ bullet 3
+₊˚ ┊ I am happily taken by my gf !!
 
   
 </details>
@@ -52,13 +52,13 @@ $${\color{#3d60a8} ๋ ࣭ ⭑ \space I \space LOVE \space MY \space WIFE \space
 <summary>$${\color{#264585FF} ꉂ`𖦹. \space extras \space ! \space ⋆˚࿔}$$</summary>
 
 ![foC00uS](https://github.com/user-attachments/assets/77fb22a7-23d7-42a1-9d6a-1d16bf940061)
-₊˚ ┊ bullet 1
+₊˚ ┊ I have a fascination in history, military, and animals
 
 ![foC00uS](https://github.com/user-attachments/assets/77fb22a7-23d7-42a1-9d6a-1d16bf940061)
-₊˚ ┊ bullet 2
+₊˚ ┊ I'm basically just Pink Floyd and NIN lyrics glued together/silly
 
 ![foC00uS](https://github.com/user-attachments/assets/77fb22a7-23d7-42a1-9d6a-1d16bf940061)
-₊˚ ┊ bullet 3
+₊˚ ┊ Chronically tired
   
 </details>
 
@@ -66,13 +66,13 @@ $${\color{#3d60a8} ๋ ࣭ ⭑ \space I \space LOVE \space MY \space WIFE \space
 <summary>$${\color{#112b61} ੭﹕﹒ \space others \space ! \space 𝜗𝜚 }$$ </summary>
 
 ![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
-₊˚ ┊ bullet 1
+₊˚ ┊ THE CAKE IS A LIE ...
 
 ![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
-₊˚ ┊ bullet 2
+₊˚ ┊ I LOVE ZOMBIES AND GORE !!!!
 
 ![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
-₊˚ ┊ bullet 3
+₊˚ ┊ I lowk wanna hold my girlfriends hand ... shhhh ....
   
 </details>
 
