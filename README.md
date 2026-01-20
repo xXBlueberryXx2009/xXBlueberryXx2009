@@ -1,81 +1,82 @@
 <div align=center>
 
-  <img width="1000" height="289" alt="tumblr_33934a5225ec829dda86a99ce5f9ce5b_9a0582a6_1280" src="https://github.com/user-attachments/assets/cfb906f1-6c00-4b16-862e-693ef622b39a" />
+
+
+<img width="1226" height="468" alt="2026_01_19_0on_Kleki" src="https://github.com/user-attachments/assets/952e56ef-4abc-4f88-9733-7cf1d39857fc" />
 
 
 
-# $${\color{#6986c2} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. }$$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=264585&width=435&lines=%F0%93%82%83%F0%93%8F%B8%F0%93%88%92%E2%80%AA%E2%80%AA%E3%82%9BMeet+me+in+outer+space+..+%E3%82%9B;+%F0%93%88%92%F0%93%8F%B8%E2%80%AA%E2%80%AA%F0%93%82%83%E3%82%9BI+will+hold+you+close+.+%E3%82%9B)](https://git.io/typing-svg)
+# $${\color{#c682f4} ⊹˚₊‧•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹}$$
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F4F182&width=435&lines=%E3%82%9BNows+your+chance+to+be+a+bigshot!%E3%82%9B)](https://git.io/typing-svg)
 
-<img width="900" height="500" alt="2026_01_15_003_Kleki" src="https://github.com/user-attachments/assets/0112ca46-94f0-4b43-a582-0ce433cd6545" />
-
-
-
-$${\color{#6986c2} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. }$$
-
-![Static Badge](https://img.shields.io/badge/milk-milk?logo=gleam&logoColor=%236986c2&label=shadow&labelColor=grey&color=%236986c2)
-
-![FF04YFi](https://github.com/user-attachments/assets/8a2d095b-e36f-4e1b-b9dd-156c383fe958)
+<img width="700" height="600" alt="2026_01_19_0n4_Kleki" src="https://github.com/user-attachments/assets/e0cbe060-4ff2-4297-bbb4-78a3ce4a19b6" />
 
 
 
-$${\color{#112b61} ˖᯽ ݁˖ \space Blue \space ! \space ᯓ★}$$
 
-$${\color{#264585FF} ⊱ ۫ ׅ ✧ \space He \space / \space Him \space :: \space She \space / \space Her \space ⊹ ࣪ ˖ }$$
+$${\color{#82f484} ⊹˚₊‧•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹}$$
 
-$${\color{#3d60a8} ๋ ࣭ ⭑ \space I \space LOVE \space MY \space WIFE \space ༉‧₊˚. }$$
+![Static Badge](https://img.shields.io/badge/balloon-balloon?logo=gleam&logoColor=%23c682f4&label=silly&labelColor=grey&color=%2382f484)
+
+![I5MxI3Y](https://github.com/user-attachments/assets/38572379-851f-4998-899e-1f82da823e49)
 
 
-<img width="1271" height="81" alt="tumblr_345bb2d806df5a8b068391e36a7af9ec_0a8cea2a_1280" src="https://github.com/user-attachments/assets/7e9e8a97-c381-4623-bc07-fc0d793cfc7f" />
 
+$${\color{#c682f4} .𖥔 \space BLUE \space ! \space ⋆.˚}$$
+
+$${\color{#82f484} ୨୧ \space He \space / \space him \space :: \space She \space / \space her \space ༘⋆}$$
+
+<img width="700" height="150" alt="2026_01_19_0pd_Kleki" src="https://github.com/user-attachments/assets/a59c6561-fc8b-4b8d-bde7-67ac0fdc176d" />
 
 
 
 <details>
-<summary>$${\color{#3d60a8} 𓏲 ๋࣭ ࣪ ˖ \space about \space me \space ! \space ؛ ଓ}$$</summary>
-  
-![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
+<summary> $${\color{#f4f183} ⌗ ゛ \space about \space me \space !}$$ </summary>
+
+![aOLKyZu](https://github.com/user-attachments/assets/c6afddc2-bba0-4f11-b6f1-df57c8a6cdc0)
 ₊˚ ┊ I am a lesbian, Omnisexual, Demiboy !
 
-![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
-₊˚ ┊ I am 16 -17 in August-
+![aOLKyZu](https://github.com/user-attachments/assets/c6afddc2-bba0-4f11-b6f1-df57c8a6cdc0)
+₊˚ ┊ I am 16 (17 in August)
 
-![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
+![aOLKyZu](https://github.com/user-attachments/assets/c6afddc2-bba0-4f11-b6f1-df57c8a6cdc0)
 ₊˚ ┊ I am happily taken by my gf !!
 
   
 </details>
 
 <details>
-<summary>$${\color{#264585FF} ꉂ`𖦹. \space extras \space ! \space ⋆˚࿔}$$</summary>
+<summary> $${\color{#82f484} ⇒ \space dni \space ! }$$ </summary>
 
-![foC00uS](https://github.com/user-attachments/assets/77fb22a7-23d7-42a1-9d6a-1d16bf940061)
-₊˚ ┊ I have a fascination in history, military, and animals
+![6bGqo4b](https://github.com/user-attachments/assets/b5d4acf7-4fbe-4f8d-95fb-5a4387b51d44)
+₊˚ ┊ Proshippers, pedophiles, zoophiles, etc .
 
-![foC00uS](https://github.com/user-attachments/assets/77fb22a7-23d7-42a1-9d6a-1d16bf940061)
-₊˚ ┊ I'm basically just Pink Floyd and NIN lyrics glued together/silly
+![6bGqo4b](https://github.com/user-attachments/assets/b5d4acf7-4fbe-4f8d-95fb-5a4387b51d44)
+₊˚ ┊ Religion forcers, anyone who only wants to talk abt politics(I hear enough ty)
 
-![foC00uS](https://github.com/user-attachments/assets/77fb22a7-23d7-42a1-9d6a-1d16bf940061)
-₊˚ ┊ Chronically tired
+![6bGqo4b](https://github.com/user-attachments/assets/b5d4acf7-4fbe-4f8d-95fb-5a4387b51d44)
+₊˚ ┊ Anyone -13. IDM 18+ ppl as long as you aren't a pedo or batshit crazy(goes for any age tho-)
+
+
   
 </details>
 
 <details>
-<summary>$${\color{#112b61} ੭﹕﹒ \space others \space ! \space 𝜗𝜚 }$$ </summary>
+<summary> $${\color{#c682f4} ˖᯽˖ \space extras \space !}$$ </summary>
 
-![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
-₊˚ ┊ THE CAKE IS A LIE ...
+![I5MxI3Y](https://github.com/user-attachments/assets/7e1af160-370a-412d-b290-4919b147fe65)
+₊˚ ┊ I have a fascination with history, military, and animals
 
-![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
-₊˚ ┊ I LOVE ZOMBIES AND GORE !!!!
+![I5MxI3Y](https://github.com/user-attachments/assets/7e1af160-370a-412d-b290-4919b147fe65)
+₊˚ ┊ I'm basically just Pink Floyd and NIN lyrics glued together/silly
 
-![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
-₊˚ ┊ I lowk wanna hold my girlfriends hand ... shhhh ....
-  
+![I5MxI3Y](https://github.com/user-attachments/assets/7e1af160-370a-412d-b290-4919b147fe65)
+₊˚ ┊ I'm undiagnosed, but smth is clearly wrong here gng
+
 </details>
 
-$${\color{#6986c2} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. }$$
-  
+$${\color{#f4f183} ⊹˚₊‧•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹}$$
+
 </div>
