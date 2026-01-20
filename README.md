@@ -42,6 +42,9 @@ $${\color{#82f484} ୨୧ \space He \space / \space him \space :: \space She \sp
 ₊˚ ┊ I am 16 (17 in August)
 
 ![aOLKyZu](https://github.com/user-attachments/assets/c6afddc2-bba0-4f11-b6f1-df57c8a6cdc0)
+₊˚ ┊ My full pseudonym is Blue H. Berry or Blue Berry !
+
+![aOLKyZu](https://github.com/user-attachments/assets/c6afddc2-bba0-4f11-b6f1-df57c8a6cdc0)
 ₊˚ ┊ I am happily taken by my gf !!
 
   
