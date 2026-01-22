@@ -79,7 +79,7 @@ $${\color{#82f484} ୨୧ \space He \space / \space him \space :: \space She \sp
 ₊˚ ┊ Fandoms I'm a part of: Call of Duty, Battlefield, Star Wars, Doom, Dandy's World, Left 4 Dead, Red Dead Redemption, Dispatch, How To Survive, Plants V. Zombies, Warrior Cats, Wings of Fire, Dead Island, The Walking Dead(comics+games), Nine Inch Nails, Zombieland, Resident Evil, Halo, Watership Down, and so many more !
 
 ![I5MxI3Y](https://github.com/user-attachments/assets/7e1af160-370a-412d-b290-4919b147fe65)
-₊˚ ┊ I avoid shipping characters mostly, but I do make sexuality headcanons
+₊˚ ┊ I avoid shipping characters mostly, but I do make sexuality headcanons (I'm a big Nellis shipper tho ...)
 
 ![I5MxI3Y](https://github.com/user-attachments/assets/7e1af160-370a-412d-b290-4919b147fe65)
 ₊˚ ┊ I'm undiagnosed, but smth is clearly wrong here gng
