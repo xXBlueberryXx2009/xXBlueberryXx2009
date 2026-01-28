@@ -1,91 +1,85 @@
 <div align=center>
 
+<img width="1800" height="720" alt="Untitled41_20260127160320" src="https://github.com/user-attachments/assets/83da6aa0-4ec3-40e5-ba0c-925af89902e1" />
 
 
-<img width="1226" height="468" alt="2026_01_19_0on_Kleki" src="https://github.com/user-attachments/assets/952e56ef-4abc-4f88-9733-7cf1d39857fc" />
+# $${\color{#597189} ༊࿐ ͎. ｡˚ ° ⊹ ˚. }$$
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6A88A6&width=435&lines=%E3%82%9BAn+ethereal+and+powerful+bee+..+%E3%82%9B;%E3%82%9B..as+unpredictable+as+the+weather%E3%82%9B)](https://git.io/typing-svg)
 
 
+![Windy_Bee](https://github.com/user-attachments/assets/8fdc6bb7-3a09-434f-b8df-6bbfdd961ae1)
 
 
-# $${\color{#c682f4} ⊹˚₊‧•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹}$$
+$${\color{#597189} ༊࿐ ͎. ｡˚ ° ⊹ ˚.}$$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F4F182&width=435&lines=%E3%82%9BNows+your+chance+to+be+a+bigshot!%E3%82%9B)](https://git.io/typing-svg)
+![Static Badge](https://img.shields.io/badge/bee-bee?logo=gleam&logoColor=%23a1b2c4&label=windy&labelColor=grey&color=%23e8f8f8)
 
-<img width="700" height="600" alt="2026_01_19_0n4_Kleki" src="https://github.com/user-attachments/assets/e0cbe060-4ff2-4297-bbb4-78a3ce4a19b6" />
-
-
+![Id47pJv](https://github.com/user-attachments/assets/24a8d0f4-3d34-4c9c-885a-7a108315e1e0)
 
 
-$${\color{#82f484} ⊹˚₊‧•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹}$$
+$${\color{#e8f8f8} ‏࿐ \space blue \space ! \space ₊ ⊹}$$
 
-![Static Badge](https://img.shields.io/badge/balloon-balloon?logo=gleam&logoColor=%23c682f4&label=silly&labelColor=grey&color=%2382f484)
-
-![I5MxI3Y](https://github.com/user-attachments/assets/38572379-851f-4998-899e-1f82da823e49)
+$${\color{#cfdbdb} ⋆｡ﾟ \space He \space / \space Him \space :: \space She \space / \space Her \space ☁︎｡⋆ }$$
 
 
-
-$${\color{#c682f4} .𖥔 \space BLUE \space ! \space ⋆.˚}$$
-
-$${\color{#82f484} ୨୧ \space He \space / \space him \space :: \space She \space / \space her \space ༘⋆}$$
-
-<img width="700" height="150" alt="2026_01_19_0pd_Kleki" src="https://github.com/user-attachments/assets/a59c6561-fc8b-4b8d-bde7-67ac0fdc176d" />
+<img width="900" height="282" alt="2026_01_27_0re_Kleki" src="https://github.com/user-attachments/assets/3c7ec7ca-a459-4b9f-930c-03b4b46fe7e4" />
 
 
 
 <details>
-<summary> $${\color{#f4f183} ⌗ ゛ \space about \space me \space !}$$ </summary>
+<summary> $${\color{#a1b2c4} ꩜ \space about \space me \space !}$$ </summary>
 
-![aOLKyZu](https://github.com/user-attachments/assets/c6afddc2-bba0-4f11-b6f1-df57c8a6cdc0)
+![XTanWXg](https://github.com/user-attachments/assets/b0347894-dd0e-451c-9c86-af7af887a10a)
 ₊˚ ┊ I am a lesbian, Omnisexual, Demiboy !
 
-![aOLKyZu](https://github.com/user-attachments/assets/c6afddc2-bba0-4f11-b6f1-df57c8a6cdc0)
+![XTanWXg](https://github.com/user-attachments/assets/b0347894-dd0e-451c-9c86-af7af887a10a)
 ₊˚ ┊ I am 16 (17 in August)
 
-![aOLKyZu](https://github.com/user-attachments/assets/c6afddc2-bba0-4f11-b6f1-df57c8a6cdc0)
+![XTanWXg](https://github.com/user-attachments/assets/b0347894-dd0e-451c-9c86-af7af887a10a)
 ₊˚ ┊ My full pseudonym is Blue H. Berry or Blue Berry !
 
-![aOLKyZu](https://github.com/user-attachments/assets/c6afddc2-bba0-4f11-b6f1-df57c8a6cdc0)
-₊˚ ┊ I am happily taken by my gf !!
-
-  
-</details>
-
-<details>
-<summary> $${\color{#82f484} ⇒ \space dni \space ! }$$ </summary>
-
-![6bGqo4b](https://github.com/user-attachments/assets/b5d4acf7-4fbe-4f8d-95fb-5a4387b51d44)
-₊˚ ┊ Proshippers, pedophiles, zoophiles, etc .
-
-![6bGqo4b](https://github.com/user-attachments/assets/b5d4acf7-4fbe-4f8d-95fb-5a4387b51d44)
-₊˚ ┊ Religion forcers, anyone who only wants to talk abt politics(I hear enough ty)
-
-![6bGqo4b](https://github.com/user-attachments/assets/b5d4acf7-4fbe-4f8d-95fb-5a4387b51d44)
-₊˚ ┊ Anyone -13. IDM 18+ ppl as long as you aren't a pedo or batshit crazy(goes for any age tho-)
-
-
-  
-</details>
-
-<details>
-<summary> $${\color{#c682f4} ˖᯽˖ \space extras \space !}$$ </summary>
-
-![I5MxI3Y](https://github.com/user-attachments/assets/7e1af160-370a-412d-b290-4919b147fe65)
-₊˚ ┊ I have a fascination with history, military, and animals
-
-![I5MxI3Y](https://github.com/user-attachments/assets/7e1af160-370a-412d-b290-4919b147fe65)
-₊˚ ┊ I'm basically just Pink Floyd and NIN lyrics glued together/silly
-
-![I5MxI3Y](https://github.com/user-attachments/assets/7e1af160-370a-412d-b290-4919b147fe65)
-₊˚ ┊ Fandoms I'm a part of: Call of Duty, Battlefield, Star Wars, Doom, Dandy's World, Left 4 Dead, Red Dead Redemption, Dispatch, How To Survive, Plants V. Zombies, Warrior Cats, Wings of Fire, Dead Island, The Walking Dead(comics+games), Nine Inch Nails, Zombieland, Resident Evil, Halo, Watership Down, and so many more !
-
-![I5MxI3Y](https://github.com/user-attachments/assets/7e1af160-370a-412d-b290-4919b147fe65)
-₊˚ ┊ I avoid shipping characters mostly, but I do make sexuality headcanons (I'm a big Nellis shipper tho ...)
-
-![I5MxI3Y](https://github.com/user-attachments/assets/7e1af160-370a-412d-b290-4919b147fe65)
+![XTanWXg](https://github.com/user-attachments/assets/b0347894-dd0e-451c-9c86-af7af887a10a)
 ₊˚ ┊ I'm undiagnosed, but smth is clearly wrong here gng
 
+![XTanWXg](https://github.com/user-attachments/assets/b0347894-dd0e-451c-9c86-af7af887a10a)
+₊˚ ┊ I am happily taken by my gf !!
+
 </details>
 
-$${\color{#f4f183} ⊹˚₊‧•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹}$$
+<details>
+<summary> $${\color{#6c7e8c} 𖦹 \space dni \space !}$$ </summary>
 
+![8H7804z](https://github.com/user-attachments/assets/8afc0de6-bc39-44dd-bc1a-1609a9eccb14)
+₊˚ ┊ Proshippers, pedophiles, zoophiles, etc .
+
+![8H7804z](https://github.com/user-attachments/assets/8afc0de6-bc39-44dd-bc1a-1609a9eccb14)
+₊˚ ┊ Religion forcers, anyone who only wants to talk abt politics(I hear enough ty)
+
+![8H7804z](https://github.com/user-attachments/assets/8afc0de6-bc39-44dd-bc1a-1609a9eccb14)
+₊˚ ┊ Anyone -13. IDM 18+ ppl as long as you aren't a pedo or batshit crazy(goes for any age tho-)
+
+</details>
+
+<details>
+<summary> $${\color{#40505d} ᯓ \space extras \space !}$$ </summary>
+
+![XTanWXg](https://github.com/user-attachments/assets/b0347894-dd0e-451c-9c86-af7af887a10a)
+₊˚ ┊ I have a fascination with history, military, and animals
+
+![XTanWXg](https://github.com/user-attachments/assets/b0347894-dd0e-451c-9c86-af7af887a10a)
+₊˚ ┊ I'm basically just Pink Floyd and NIN lyrics glued together/silly
+
+![XTanWXg](https://github.com/user-attachments/assets/b0347894-dd0e-451c-9c86-af7af887a10a)
+₊˚ ┊ Fandoms I'm a part of: Call of Duty, Battlefield, Star Wars, Doom, Dandy's World, Left 4 Dead, Red Dead Redemption, Dispatch, How To Survive, Plants V. Zombies, Warrior Cats, Wings of Fire, Dead Island, The Walking Dead(comics+games), Nine Inch Nails, Zombieland, Resident Evil, Halo, Watership Down, and so many more !
+
+![XTanWXg](https://github.com/user-attachments/assets/b0347894-dd0e-451c-9c86-af7af887a10a)
+₊˚ ┊ I avoid shipping characters mostly, but I do make sexuality headcanons (I'm a big Nellis shipper tho ...)
+
+</details>
+
+$${\color{#597189} ༊࿐ ͎. ｡˚ ° ⊹ ˚.}$$
+
+<img width="112" height="112" alt="Cloud_Vial__fliter--x-rays__channel--red__mode--multiply" src="https://github.com/user-attachments/assets/201ff984-442c-469c-a5df-469b51a75a0c" />
+  
 </div>
