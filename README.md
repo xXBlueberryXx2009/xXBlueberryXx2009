@@ -64,6 +64,9 @@ $${\color{#b7add7} ⋆｡ﾟ \space He \space / \space Him \space :: \space She 
 ![tWDZaGJ](https://github.com/user-attachments/assets/fa2d46b3-3a8d-4b13-bbae-0f2159e0c302)
 ₊˚ ┊ Anyone -13. IDM 18+ ppl as long as you aren't a pedo or batshit crazy(goes for any age tho-)
 
+![tWDZaGJ](https://github.com/user-attachments/assets/fa2d46b3-3a8d-4b13-bbae-0f2159e0c302)
+₊˚ ┊ Anyone associated with Tirgery
+
 </details>
 
 <details>
