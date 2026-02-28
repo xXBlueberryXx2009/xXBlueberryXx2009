@@ -36,19 +36,22 @@ $${\color{#b7add7} ⋆｡ﾟ \space He \space / \space Him \space :: \space She 
 <summary> $${\color{#c35bbb} ꩜ \space about \space me \space !}$$ </summary>
 
 ![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
-₊˚ ┊ I am a lesbian, Omnisexual, Demiboy !
+₊˚ ┊ You can call me Blue or Heavenly !
 
 ![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
 ₊˚ ┊ I am 16 (17 in August)
 
 ![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
-₊˚ ┊ My full pseudonym is Blue H. Berry or Blue Berry !
+₊˚ ┊ I am a lesbian, Omnisexual, Demiboy !
 
 ![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
 ₊˚ ┊ I'm undiagnosed, but smth is clearly wrong here gng
 
 ![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
-₊˚ ┊ I am happily taken by my gf !!
+₊˚ ┊ I am happily taken by the gal of my dreams !!
+
+![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
+₊˚ ┊ I use tonetags often
 
 </details>
 
