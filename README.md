@@ -79,7 +79,7 @@ $${\color{#b7add7} ⋆｡ﾟ \space He \space / \space Him \space :: \space She 
 ₊˚ ┊ I'm basically just Pink Floyd and NIN lyrics glued together/silly
 
 ![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
-₊˚ ┊ Fandoms I'm a part of: Call of Duty, Battlefield, Star Wars, Doom, Dandy's World, Left 4 Dead, Red Dead Redemption, Dispatch, How To Survive, Plants V. Zombies, Warrior Cats, Wings of Fire, Dead Island, The Walking Dead(comics+games), Nine Inch Nails, Zombieland, Resident Evil, Halo, Watership Down, and so many more !
+₊˚ ┊ Fandoms I'm a part of: TWD, Warrior Cats, Resident Evil, Wings of Fire, Watership Down, Star Wars, Call of Duty, Halo, Pressure, Supernatural, Left 4 Dead, The Boys, and more that I've forgotten to include !
 
 ![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
 ₊˚ ┊ I avoid shipping characters mostly, but I do make sexuality headcanons (I'm a big Nellis shipper tho ...)
