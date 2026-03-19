@@ -42,13 +42,10 @@ $${\color{#b7add7} ⋆｡ﾟ \space He \space / \space Him \space :: \space She 
 ₊˚ ┊ I am 16 (17 in August)
 
 ![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
-₊˚ ┊ I am a lesbian, Omnisexual, Demiboy !
+₊˚ ┊ I am a Demiboy !
 
 ![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
 ₊˚ ┊ I'm undiagnosed, but smth is clearly wrong here gng
-
-![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
-₊˚ ┊ I am happily taken by the gal of my dreams !!
 
 ![S89ceBR](https://github.com/user-attachments/assets/cf94fddb-afd3-4366-af9f-a6b61c5d5b8f)
 ₊˚ ┊ I use tonetags often
