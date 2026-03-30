@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=%22+I've+given+all+I+can+%22;%22+but+it's+not+enough+%22)](https://git.io/typing-svg)
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=200E69&width=435&lines=Carry+on%2C+my+wayward+son;There'll+be+peace+when+you+are+done;Lay+your+weary+head+to+rest;Don't+you+cry+no+more" alt="Typing SVG" /></a>
