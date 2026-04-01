@@ -1,3 +1,1 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ycjacz26pl5tdvhqrr7wr4k7uq&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=light)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ycjacz26pl5tdvhqrr7wr4k7uq&redirect=true)
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=10195D&width=435&lines=Mr.+Crowley...;Won't+you+ride+my+white+horse%3F;Mr.+Crowley...;It's+symbolic%2C+of+course...)](https://git.io/typing-svg)
