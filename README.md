@@ -1,1 +1,1 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=200E69&width=435&lines=Carry+on%2C+my+wayward+son;There'll+be+peace+when+you+are+done;Lay+your+weary+head+to+rest;Don't+you+cry+no+more" alt="Typing SVG" /></a>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=10195D&width=435&lines=Mr.+Crowley...;Won't+you+ride+my+white+horse%3F;Mr.+Crowley...;It's+symbolic%2C+of+course...)](https://git.io/typing-svg)
