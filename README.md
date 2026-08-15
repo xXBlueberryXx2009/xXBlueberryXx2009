@@ -19,7 +19,9 @@ $${\color{#473554} ⛧° \space my \space most \space used \space skins \space �
 <img width="320" height="400" alt="pony-town-Thane-063__Halo,OC-stand-shadow-fixed-padded-toy316-4x" src="https://github.com/user-attachments/assets/d9f5f593-a92c-4a57-a077-c50e34aad77d" />
 
 
-<img width="350" height="90" alt="pink2" src="https://github.com/user-attachments/assets/a4f8d1fe-6beb-416a-8d3a-c6c4dc79fa8a" />
+<img width="184" height="25" alt="cake" src="https://github.com/user-attachments/assets/dbefa25f-6ed9-4722-8f37-51f20157b08e" /> <img width="184" height="25" alt="cake" src="https://github.com/user-attachments/assets/5058933d-0e61-4c7e-b887-d36e537126ed" />
+
+
 
 
 WIP
