@@ -8,5 +8,4 @@
   
 # $${\color{blue} ⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅ }$$
 
-<img width="864" height="315" alt="e4f2c75a8032210c71f2c76508ecd4fe" src="https://github.com/user-attachments/assets/6267029c-b9fb-425c-a36e-880256de3249" />
-
+<img width="1200" height="400" alt="b18da032418d1b9bf93f1bc0f12a7f2a" src="https://github.com/user-attachments/assets/88d492a8-1aff-4e43-ae85-92460908afd8" />
