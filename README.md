@@ -28,4 +28,4 @@ $${\color{#473554} ⛧° \space my \space most \space used \space skins \space �
 
 # $${\color{#c16bff} ⛧°。 ⋆༺♱༻⋆。 °⛧ }$$
 
-WIP
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=5087&pause=888&color=B8AAF7&center=true&vCenter=true&width=435&lines=Though+my+eyes+could+see%2C+.+.+.;I+still+was+a+blind+man+.+.+.;Though+my+mind+could+think%2C+.+.+.;I+still+was+a+mad+man+.+.+.)](https://git.io/typing-svg)
