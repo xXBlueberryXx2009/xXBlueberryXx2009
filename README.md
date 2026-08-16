@@ -1,11 +1,12 @@
 <div align=center>
   
- <img width="1200" height="400" alt="6122ab56a6b6bdc2862e800e08fcffa4" src="https://github.com/user-attachments/assets/e610073a-61e6-4c6f-a6cb-965a37f399c8" />
+ <img width="357" height="215" alt="Screenshot 2026-08-16 100313" src="https://github.com/user-attachments/assets/99320018-6969-46ef-9588-e5bfe9633db9" />
+
 
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4F80BD&center=true&vCenter=true&width=435&lines=Carry+on+my+wayward+son+.+.+.;There'll+be+peace+.+.+.;When+you+are+done+.+.+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&pause=1000&color=402C69&center=true&vCenter=true&width=435&lines=%22+Ashes%2C+ashes+.+.+.;Dust+to+dust+.+.+.;The+Devil's+after+both+of+us+%22)](https://git.io/typing-svg)
 
   
-# $${\color{blue} ⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅ }$$
+# $${\color{#4a3c63} ⋅───⊱༺ ♰ ༻⊰───⋅ }$$
 
-<img width="1200" height="400" alt="b18da032418d1b9bf93f1bc0f12a7f2a" src="https://github.com/user-attachments/assets/88d492a8-1aff-4e43-ae85-92460908afd8" />
+<img width="790" height="401" alt="Screenshot 2026-08-16 094203" src="https://github.com/user-attachments/assets/4365a624-f756-42d7-93a3-4ab8e916b50e" />
