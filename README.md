@@ -4,12 +4,11 @@
 
 
 
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&pause=1000&color=FFEC7F&center=true&vCenter=true&width=435&lines=%22+Let's+turn+forever%2C+You+and+me+.+.+.;Windmill%2C+windmill+for+the+land+.+.+.;Is+everybody+In%3F+%22+.+.+.)](https://git.io/typing-svg)
 
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&pause=1000&color=F7D81D&center=true&vCenter=true&width=435&lines=WIP)](https://git.io/typing-svg)
-
-  
-# $${\color{yellow} BEING REDONE }$$
+# $${\color{yellow} ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ }$$
 
 <img width="1200" height="400" alt="8db0a8799bd94daaee9daf3914495912" src="https://github.com/user-attachments/assets/fbc3f6e0-92ed-40e2-8fe7-a53e57828fb8" />
 
