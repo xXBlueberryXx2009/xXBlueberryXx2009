@@ -12,4 +12,3 @@
 
 <img width="1200" height="400" alt="8db0a8799bd94daaee9daf3914495912" src="https://github.com/user-attachments/assets/fbc3f6e0-92ed-40e2-8fe7-a53e57828fb8" />
 
-https://spotify-live-banner.vercel.app/?spin=true&scan=true&theme=dark&eq_color=rainbow
