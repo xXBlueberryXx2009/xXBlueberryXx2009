@@ -10,6 +10,4 @@
   
 # $${\color{#4a3c63} ⋅───⊱༺ ♰ ༻⊰───⋅ }$$
 
-<img width="790" height="401" alt="Screenshot 2026-08-16 094203" src="https://github.com/user-attachments/assets/0f93f59d-5769-4ced-ba2e-a1d97b046fa3" />
-
-
+<img width="790" height="210" alt="Screenshot 2026-08-16 094203" src="https://github.com/user-attachments/assets/8b6a5a9f-3aaf-4572-9a30-84c6df893e7a" />
