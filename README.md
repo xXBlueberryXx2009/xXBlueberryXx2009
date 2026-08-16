@@ -12,3 +12,4 @@
 
 <img width="1200" height="400" alt="8db0a8799bd94daaee9daf3914495912" src="https://github.com/user-attachments/assets/fbc3f6e0-92ed-40e2-8fe7-a53e57828fb8" />
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ycjacz26pl5tdvhqrr7wr4k7uq&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
